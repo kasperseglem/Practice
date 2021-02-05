@@ -1,3 +1,2 @@
 # Practice
-
-BROWSER CONFLICT2
+Isaiah Thomas!
