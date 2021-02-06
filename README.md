@@ -1,2 +1,3 @@
 # Practice
-Isaiah Thomas!Allison Liu :)
+Isaiah Thomas!
+
