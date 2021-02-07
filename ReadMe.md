@@ -1,13 +1,10 @@
 # Practice
 
-
-Isaiah Thomas! Branch edition!
-- Okay I can edit if need be -Zoe
-BROWSER CONFLICT #???
+Project Team Members: 
 
 Isaiah Thomas!
 edited
-Kasper's edit
+Kasper's edit 2
 abeal is making an edit
 
 
@@ -18,3 +15,5 @@ Okay I am adding more to this file now!
 Zoe Cruse 
 
 
+
+Edited by: Abeal Sileshi
