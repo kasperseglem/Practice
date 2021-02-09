@@ -10,7 +10,7 @@ abeal is making an edit
 
 Zoe Cruse
 
-Allison Liu
+Allison Liu :)
 
 Okay I am adding more to this file now! 
 "A couple of lines describing your project"
