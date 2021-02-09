@@ -9,9 +9,7 @@ Isaiah Thomas!
 abeal is making an edit
 
 Zoe Cruse
-
 Allison Liu :)
-
 Brady Murphy
 
 Edited by Kasper
