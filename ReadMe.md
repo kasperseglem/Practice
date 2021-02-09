@@ -10,6 +10,8 @@ abeal is making an edit
 
 Zoe Cruse
 
+Brady Murphy
+
 Allison Liu
 
 Okay I am adding more to this file now! 
